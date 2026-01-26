@@ -1,5 +1,4 @@
 #### Hi, I’m @Ayetherah
-- 👀 I’m a massive bottom
 #### LINKS:
 - [Furaffinity](https://www.furaffinity.net/user/ayetherah/)
 - [X](https://twitter.com/C3O3_PO3)
